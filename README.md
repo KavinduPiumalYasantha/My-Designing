@@ -21,3 +21,9 @@
 
 
 ![WhatsApp Image 2021-12-09 at 9 54 52 PM](https://user-images.githubusercontent.com/88796808/146048922-8efaa389-b9ae-49cb-b0de-bac8d7e83237.jpeg)
+
+
+![happy new2](https://user-images.githubusercontent.com/88796808/147810769-5941dd06-5e74-4dcc-8f6b-9cce2c4fbc82.png)
+
+
+![Happy New Year 2](https://user-images.githubusercontent.com/88796808/147810777-1298a6ad-7adf-41f2-9265-8ddeed78c9e1.png)
