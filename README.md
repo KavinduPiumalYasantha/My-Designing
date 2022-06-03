@@ -38,3 +38,38 @@
 
 ![Untitled Diagram 2](https://user-images.githubusercontent.com/88796808/156012641-39ba5985-65b5-41b9-9217-6c8d00f37afe.jpg)
 
+
+![post (1)](https://user-images.githubusercontent.com/88796808/171907108-093f29ca-68a9-4161-a857-75a23a9443bf.png)
+
+
+![post 1](https://user-images.githubusercontent.com/88796808/171907197-e6590957-461c-45ce-9ddf-224161defb17.png)
+
+
+![post 2 (1)](https://user-images.githubusercontent.com/88796808/171907231-5c60c77c-7956-41e5-bb3d-3aa543eb686f.png)
+
+
+![Untitled-1 (1)](https://user-images.githubusercontent.com/88796808/171907273-15d4a34b-76e8-4d57-866f-a421e14c5f15.png)
+
+
+![dthed](https://user-images.githubusercontent.com/88796808/171907387-09902179-366f-4e8e-9bc7-840dc5c5f791.jpg)
+
+
+![kaha 1](https://user-images.githubusercontent.com/88796808/171907411-dd14c51d-64f4-47b1-935f-467d764544b4.png)
+
+
+![kaha 3](https://user-images.githubusercontent.com/88796808/171907469-e656b23a-42a3-4b83-bcfe-6aeb1bd56dbd.png)
+
+
+![new 1](https://user-images.githubusercontent.com/88796808/171907666-0c100c17-f787-4ed1-aa5e-f3cfaccaa392.png)
+
+
+![pohora 1](https://user-images.githubusercontent.com/88796808/171907878-87f8b031-69e2-4b62-9789-58858db74b7a.jpg)
+
+
+![pohora 2](https://user-images.githubusercontent.com/88796808/171907904-445cea3b-708f-48d3-877a-115599939423.jpg)
+
+
+![pohora 3](https://user-images.githubusercontent.com/88796808/171907921-ccf2bcca-1667-4491-993c-b765286db284.jpg)
+
+
+![pohora 4](https://user-images.githubusercontent.com/88796808/171907928-25ec11d0-2b7b-4c8d-ba4b-a23e3d37d892.png)
