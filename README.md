@@ -12,21 +12,6 @@
 ![145276686_152927173302687_4461934477928661201_n](https://user-images.githubusercontent.com/88796808/171908703-02957bc5-550b-48ac-96be-d5c9d32e1adb.jpg)
 
 
-![WhatsApp Image 2021-12-09 at 10 00 29 PM](https://user-images.githubusercontent.com/88796808/146048909-ef7ff53d-3f1f-4773-9148-e2ae65d89577.jpeg)
-
-
-![WhatsApp Image 2021-12-09 at 9 58 28 PM](https://user-images.githubusercontent.com/88796808/146048914-daf756a2-3a9a-4287-8e1d-6e620ebb787f.jpeg)
-
-
-![WhatsApp Image 2021-12-09 at 9 57 33 PM](https://user-images.githubusercontent.com/88796808/146048916-40568950-887f-4dbf-ad0f-cea219af8b5c.jpeg)
-
-
-![WhatsApp Image 2021-12-09 at 9 56 47 PM](https://user-images.githubusercontent.com/88796808/146048918-97d2b103-740f-4ef6-972a-e8cc18051cbc.jpeg)
-
-
-![WhatsApp Image 2021-12-09 at 9 54 52 PM](https://user-images.githubusercontent.com/88796808/146048922-8efaa389-b9ae-49cb-b0de-bac8d7e83237.jpeg)
-
-
 ![happy new2](https://user-images.githubusercontent.com/88796808/147810769-5941dd06-5e74-4dcc-8f6b-9cce2c4fbc82.png)
 
 
@@ -79,6 +64,21 @@
 
 
 ![pohora 4](https://user-images.githubusercontent.com/88796808/171907928-25ec11d0-2b7b-4c8d-ba4b-a23e3d37d892.png)
+
+
+![WhatsApp Image 2021-12-09 at 10 00 29 PM](https://user-images.githubusercontent.com/88796808/146048909-ef7ff53d-3f1f-4773-9148-e2ae65d89577.jpeg)
+
+
+![WhatsApp Image 2021-12-09 at 9 58 28 PM](https://user-images.githubusercontent.com/88796808/146048914-daf756a2-3a9a-4287-8e1d-6e620ebb787f.jpeg)
+
+
+![WhatsApp Image 2021-12-09 at 9 57 33 PM](https://user-images.githubusercontent.com/88796808/146048916-40568950-887f-4dbf-ad0f-cea219af8b5c.jpeg)
+
+
+![WhatsApp Image 2021-12-09 at 9 56 47 PM](https://user-images.githubusercontent.com/88796808/146048918-97d2b103-740f-4ef6-972a-e8cc18051cbc.jpeg)
+
+
+![WhatsApp Image 2021-12-09 at 9 54 52 PM](https://user-images.githubusercontent.com/88796808/146048922-8efaa389-b9ae-49cb-b0de-bac8d7e83237.jpeg)
 
 
 ![WhatsApp Image 2021-10-15 at 2 21 32 AM](https://user-images.githubusercontent.com/72688889/145992637-520469dd-a2a9-466e-b901-6e7c93e5a0a3.jpeg)
