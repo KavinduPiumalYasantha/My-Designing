@@ -54,23 +54,6 @@
 ![post 2 (1)](https://user-images.githubusercontent.com/88796808/171907231-5c60c77c-7956-41e5-bb3d-3aa543eb686f.png)
 
 
-
-![WhatsApp Image 2021-10-15 at 2 21 32 AM](https://user-images.githubusercontent.com/72688889/145992637-520469dd-a2a9-466e-b901-6e7c93e5a0a3.jpeg)
-
-
-
-![WhatsApp Image 2021-10-15 at 2 21 32 AM (3)](https://user-images.githubusercontent.com/72688889/145992859-1ca339bd-2d07-4c74-ab8f-259f9bfcc5e9.jpeg)
-
-
-
-![WhatsApp Image 2021-10-15 at 2 21 32 AM (6)](https://user-images.githubusercontent.com/72688889/145993108-11309ebf-23be-4225-8ba7-5b64a31771d9.jpeg)
-
-
-
-![WhatsApp Image 2021-10-15 at 2 21 32 AM (11)](https://user-images.githubusercontent.com/72688889/145993310-da35862e-9951-43af-a0d7-03b335910bf8.jpeg)
-
-
-
 ![Untitled-1 (1)](https://user-images.githubusercontent.com/88796808/171907273-15d4a34b-76e8-4d57-866f-a421e14c5f15.png)
 
 
@@ -96,3 +79,18 @@
 
 
 ![pohora 4](https://user-images.githubusercontent.com/88796808/171907928-25ec11d0-2b7b-4c8d-ba4b-a23e3d37d892.png)
+
+
+![WhatsApp Image 2021-10-15 at 2 21 32 AM](https://user-images.githubusercontent.com/72688889/145992637-520469dd-a2a9-466e-b901-6e7c93e5a0a3.jpeg)
+
+
+
+![WhatsApp Image 2021-10-15 at 2 21 32 AM (3)](https://user-images.githubusercontent.com/72688889/145992859-1ca339bd-2d07-4c74-ab8f-259f9bfcc5e9.jpeg)
+
+
+
+![WhatsApp Image 2021-10-15 at 2 21 32 AM (6)](https://user-images.githubusercontent.com/72688889/145993108-11309ebf-23be-4225-8ba7-5b64a31771d9.jpeg)
+
+
+
+![WhatsApp Image 2021-10-15 at 2 21 32 AM (11)](https://user-images.githubusercontent.com/72688889/145993310-da35862e-9951-43af-a0d7-03b335910bf8.jpeg)
