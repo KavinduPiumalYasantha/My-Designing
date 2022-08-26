@@ -1,11 +1,12 @@
 # My-Designing
-![2](https://user-images.githubusercontent.com/88796808/186884658-fe1f48b3-c102-4944-8757-af984441678b.png)
-
-
 ![Bisuness Card 3](https://user-images.githubusercontent.com/88796808/186884670-70ec3026-98f0-4cfb-b310-7b321dd06cdc.png)
 
 
+![2](https://user-images.githubusercontent.com/88796808/186884658-fe1f48b3-c102-4944-8757-af984441678b.png)
+
+
 ![1](https://user-images.githubusercontent.com/88796808/186884673-00d31a49-47af-481f-87e8-ae09def1eaa4.png)
+
 
 ![final 1](https://user-images.githubusercontent.com/88796808/146047415-492c79b9-15da-490d-af61-16b7fa73ca56.jpg)
 
