@@ -5,16 +5,16 @@
 ![Bisuness Card 3](https://user-images.githubusercontent.com/88796808/187156132-f44f5ac0-67cc-4b99-89de-7562d8ea29bd.png)
 
 
-![1](https://user-images.githubusercontent.com/88796808/187156159-a314e2bd-a3e7-45e0-86f8-4571c9fc6e01.png)
-
-
-![2](https://user-images.githubusercontent.com/88796808/187156164-5f5b3abb-50ae-4be6-aaba-ed04e3d2513b.png)
-
-
 ![Bisuness Card 3](https://user-images.githubusercontent.com/88796808/186884670-70ec3026-98f0-4cfb-b310-7b321dd06cdc.png)
 
 
 ![Bisuness Card 3](https://user-images.githubusercontent.com/88796808/18
+
+
+![1](https://user-images.githubusercontent.com/88796808/187156159-a314e2bd-a3e7-45e0-86f8-4571c9fc6e01.png)
+
+
+![2](https://user-images.githubusercontent.com/88796808/187156164-5f5b3abb-50ae-4be6-aaba-ed04e3d2513b.png)
 
 
 ![2](https://user-images.githubusercontent.com/88796808/187017322-e06e60b2-ff3f-49e8-a6ea-372b616500ea.png)
