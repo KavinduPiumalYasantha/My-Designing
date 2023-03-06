@@ -1,4 +1,10 @@
 # My-Designing
+![2](https://user-images.githubusercontent.com/88796808/223107991-6c858b4f-80d1-429f-8812-7ee4d3aa2065.jpg)
+
+
+![1](https://user-images.githubusercontent.com/88796808/223108007-8e2eaccd-9628-4b57-8dc2-e60c2a75729f.jpg)
+
+
 ![Bisuness Card 3](https://user-images.githubusercontent.com/88796808/187193349-4f8ca4da-dbc2-48cc-b119-c174c59734d0.png)
 
 
